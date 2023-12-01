@@ -20,7 +20,6 @@
 ### 🌐 Connect with Me:
 - 📫 Feel free to reach out for collaboration or discussions!
 - 📧 Email: lewiskarimi06@gmail.com
-- 🌐 Portfolio: [yourportfolio.com]
 - 🐦 Twitter: @Lewis)_karimy
 
 ### 🤝 Let's Collaborate:
