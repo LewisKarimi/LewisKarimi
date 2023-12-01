@@ -20,7 +20,7 @@
 ### 🌐 Connect with Me:
 - 📫 Feel free to reach out for collaboration or discussions!
 - 📧 Email: lewiskarimi06@gmail.com
-- 🐦 Twitter: @Lewis)_karimy
+- 🐦 Twitter: @Lewis_karimy
 
 ### 🤝 Let's Collaborate:
 - 🚀 Excited about open-source contributions and collaborative projects.
